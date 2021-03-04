@@ -1,0 +1,10 @@
+Make the dough:
+Sprinkle yeast over warm water in a small bowl.
+Let stand until foamy, about 5 minutes.
+Whisk milk, butter, eggs, honey, salt, and vanilla with a mixer on medium speed. Add yeast mixture, and whisk for 1 minute. Switch to dough hook, reduce speed to low, and add 4 cups flour. After flour is incorporated, raise speed to medium, and continue kneading.
+Add remaining flour, 1/2 cup at a time, mixing until dough no longer sticks to the bowl. Raise speed to medium-high, and knead for 10 minutes. (Alternatively, knead by hand until smooth, 15 to 20 minutes.)
+Turn dough out onto a lightly floured surface, and knead until dough is very smooth, about 5 minutes. Transfer to a lightly oiled bowl, cover with plastic, and set aside in a warm, draft-free spot until doubled in size, about 1 hour.
+Make the filling and topping: Melt butter in a saucepan over medium heat. Stir in honey, corn syrup, and sugar, bring to a gentle simmer, then remove from heat. Let cool. Combine mascarpone and creme fraiche in a bowl.
+Punch down dough. Turn out onto a lightly floured surface, and divide into 3 portions. Roll each into a ball. Freeze 2 for up to 3 months (thaw in the refrigerator before using). Roll remaining dough into a 10-by-13 1/2-inch rectangle. Brush lightly with honey, spread mascarpone mixture evenly on top, leaving a 1-inch border, and sprinkle with pecans. Starting on 1 long side, roll dough into a log. Pinch along seam to seal. Cut into nine 1 1/2-inch-thick slices.
+Pour honey mixture into an 8-inch square baking pan. Place buns, cut sides down, in pan, 3 to a row. Let buns rise in a warm, draft-free spot until doubled in size, 30 to 40 minutes.
+Preheat oven to 375 degrees. Place oven rack in lower third. Bake buns, rotating halfway through, until brown and bubbling, about 1 hour. (If buns darken too quickly, cover with foil.) Set a wire rack on a baking sheet. Immediately invert buns onto rack. Drizzle with honey, and serve warm.
